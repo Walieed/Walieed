@@ -12,6 +12,7 @@
 - <a href="https://mamrservices.com/%D8%B4%D8%B1%D9%83%D8%A9-%D8%AA%D8%B3%D9%84%D9%8A%D9%83-%D9%85%D8%AC%D8%A7%D8%B1%D9%8A-%D8%A8%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6" title="شركة تسليك مجاري بالرياض">شركة تسليك مجاري بالرياض</a>
 - - <a href="https://couponcodes4u.com/store/coupon-namshi/" title="كود خصم نمشي">كود خصم نمشي</a>
 - <a href="https://wts.ms/" title="رابط واتس اب">رابط واتس اب</a>
+- <a href="https://elaqatkwt.com" title="علاج الادمان">علاج الادمان</a>
 
 <!---
 Walieed/Walieed is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
