@@ -16,6 +16,7 @@
 - <a href="https://alzhrani4clean.com/%D8%B4%D8%B1%D9%83%D8%A9-%D8%AA%D9%86%D8%B8%D9%8A%D9%81-%D8%AE%D8%B2%D8%A7%D9%86%D8%A7%D8%AA-%D8%A8%D8%AC%D8%AF%D8%A9" title="شركة تنظيف خزانات بجدة">شركة تنظيف خزانات بجدة</a>
 - <a href="https://zaytafghany.com" title="الزيت الافغاني">الزيت الافغاني</a>
 - <a href="https://wafiree.com" title="كوبونات خصم موقع وفر">كوبونات خصم موقع وفر</a>
+- <a href="https://dealifnd.com/%D8%A7%D8%B3%D8%A6%D9%84%D8%A9-%D8%AF%D9%8A%D9%86%D9%8A%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9" title="اسئلة دينية صعبة">اسئلة دينية صعبة</a>
 
 <!---
 Walieed/Walieed is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
