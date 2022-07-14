@@ -21,8 +21,9 @@
 - <a href="https://madahomes.com.tr/%d8%a7%d8%b3%d8%b7%d9%86%d8%a8%d9%88%d9%84-%d8%a7%d8%b3%d9%86%d9%8a%d9%88%d8%b1%d8%aa-%d9%85%d9%8a%d8%af%d8%a7%d9%86/" title="اسنيورت ميدان">اسنيورت ميدان</a>
 - <a href="https://addicenter.com/%D8%B9%D9%84%D8%A7%D8%AC-%D8%A7%D9%84%D8%A7%D8%AF%D9%85%D8%A7%D9%86-%D9%81%D9%8A-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7/" title="علاج الادمان في تركيا">علاج الادمان في تركيا</a>
 - <a href="https://tr.oldpazar.com/yasak-mahalleler-p54" title="لائحة المناطق المحظورة في تركيا">لائحة المناطق المحظورة في تركيا</a>
-- <a href="https://amrelmolahz.blogspot.com/" title="#">#</a>
+- <a href="https://amrelmolahz.blogspot.com/" title="صحيح الدين">صحيح الدين</a>
 - - <a href="https://q.laroza.net/" title="لاروزا فيديو">لاروزا فيديو</a>
+- - <a href="https://www.elroneeldawley.com/%D8%B4%D8%B1%D9%83%D8%A9-%D9%86%D9%82%D9%84-%D8%B9%D9%81%D8%B4-%D8%A8%D8%A7%D9%84%D8%AE%D8%A8%D8%B1-%D8%A7%D8%AA%D8%B5%D9%84-%D8%A7%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%B2%D9%8A%D9%86-%D9%86%D9%82%D9%84-%D8%A7%D8%AB%D8%A7%D8%AB-%D8%A8%D8%A7%D9%84%D8%AE%D8%A8%D8%B1-0564591841" title="شركة نقل عفش بالخبر">شركة نقل عفش بالخبر</a>
 <!---
 Walieed/Walieed is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
